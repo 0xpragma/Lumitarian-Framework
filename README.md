@@ -24,7 +24,7 @@ Because we believe in individual and collective freedom, because we believe that
 
 ### Deductions and Consequences
 
-**Axiom 1 Deduction:**
+**As a result of Axiom 1:**
 - Res humana is the measure of good, moral values shall root and its perpetuation and expansion.
 - If the Res Humana produces the human individuals who constitute it, the Res Humana is nonetheless an emergent property of the individuals who animate it. If, therefore, the Res Humana temporally precedes the advent of the individual, its role must be to maximize the development of concrete individual autonomy, that is to say autonomy of conscience and economic autonomy.
 
